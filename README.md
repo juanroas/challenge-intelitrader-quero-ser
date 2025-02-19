@@ -1,0 +1,1 @@
+# challenge-intelitrader-quero-ser
